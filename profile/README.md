@@ -1,1 +1,2 @@
-![twitter cover-100](https://user-images.githubusercontent.com/57835412/197697378-7da24c3f-98a1-4953-8c1b-975722d92294.jpg)
+![image](https://user-images.githubusercontent.com/57835412/198242307-021c2ef1-ee77-4f93-b827-86aa94171259.png)
+
